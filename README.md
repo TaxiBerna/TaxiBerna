@@ -1,1 +1,1 @@
-- 💻  Computer Engineering at @uniPisa
+- 💻  Computer Engineering student at @uniPisa
